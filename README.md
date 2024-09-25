@@ -1,0 +1,2 @@
+# ridbilsigmaboy
+CARA MENJADI SIGMA
